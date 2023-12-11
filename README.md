@@ -1,1 +1,1 @@
-![alt text](https://user-images.githubusercontent.com/74038190/212748830-4c709398-a386-4761-84d7-9e10b98fbe6e.gif) <br>
+![alt text]([https://user-images.githubusercontent.com/74038190/212748830-4c709398-a386-4761-84d7-9e10b98fbe6e.gif](https://media1.tenor.com/m/KkerOljBwakAAAAd/computer-nerd.gif)https://media1.tenor.com/m/KkerOljBwakAAAAd/computer-nerd.gif) <br>
